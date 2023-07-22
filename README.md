@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I am currently enrolled at Tech Elevator and I am learning how to be a software developer
+I struggle with loops!! 
+if you ask me about fishing I'll talk to you for hours! 
+my is  email hdstrawser@gmail.com 
+a fun fact about me is I'm a dad to two wonderful boys and I like to do bass fishing tournaments! 
